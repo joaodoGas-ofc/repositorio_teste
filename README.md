@@ -1,5 +1,5 @@
 # repositorio teste!
-primeito repositorio do curso git e git hub
+oh mae deixa eu estourar mae, dar uma casa pra senhora, lá no guarujá😪
 
 editado
 
